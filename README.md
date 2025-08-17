@@ -1,5 +1,4 @@
-# Resources
-Citation Links for our Case study infographic
+# REFERENCE FOR TRUE EXPERIMENTAL RESEARCH
+This is a reference list for our true experimental research/infographic
 Here are the links and sources for the information used in our infographics:
-https://www.universalclass.com/articles/business/a-case-studies-strengths-and-weaknesses.htm
-
+https://www.slideshare.net/slideshow/true-experimental-study-design/79247777?fbclid=IwY2xjawMPNXVleHRuA2FlbQIxMABicmlkETFpT1I2c2xjT3JFQ202QkFwAR7069TF6HNI01JanwM2NRCciGILaZFbACPxZjbR-sHjClCcnE4dN0IB0C0JnA_aem_8yY01q1DxLBu9t6j3o5hHA
